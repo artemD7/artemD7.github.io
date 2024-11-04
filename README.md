@@ -8,6 +8,6 @@ ueful links:
 * https://www.weizmann.ac.il/pages/ 
 * https://szabgab.com/
 
-and ome chihuahua for fun:
+and some chihuahua for fun:
 
 ![](https://images.pexels.com/photos/191353/pexels-photo-191353.jpeg?auto=compress&cs=tinysrgb&w=1260&h=750&dpr=1)
