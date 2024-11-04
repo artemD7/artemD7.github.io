@@ -4,7 +4,7 @@ My name is Artem Dubovetskyi and I did my M.Sc. here at Weizmann in the lab of P
 I like to work with proteins of all types (except ~~membrane proteins~~).
 My hobbies: swimming, reading books. 
 
-ueful links:
+useful links:
 * https://www.weizmann.ac.il/pages/ 
 * https://szabgab.com/
 
