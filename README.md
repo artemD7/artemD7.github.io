@@ -6,7 +6,7 @@ My hobbies: swimming, reading books.
 
 ueful links:
 https://www.weizmann.ac.il/pages/ 
- https://szabgab.com/
+https://szabgab.com/
 
 and ome chihuahua for fun:
 
