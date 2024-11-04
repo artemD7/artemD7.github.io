@@ -5,8 +5,8 @@ I like to work with proteins of all types (except ~~membrane proteins~~).
 My hobbies: swimming, reading books. 
 
 ueful links:
-https://www.weizmann.ac.il/pages/ 
-https://szabgab.com/
+* https://www.weizmann.ac.il/pages/ 
+* https://szabgab.com/
 
 and ome chihuahua for fun:
 
