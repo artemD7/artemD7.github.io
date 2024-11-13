@@ -6,6 +6,7 @@ I like to work with proteins of all types (except ~~membrane proteins~~).
 My hobbies: swimming, reading books. 
 
 useful links:
+* [my LinkedIn](https://www.linkedin.com/in/artem-dubovetskyi-599a52a8/)
 * [https://www.weizmann.ac.il/pages/](https://www.weizmann.ac.il/pages/) 
 * [https://szabgab.com/](https://szabgab.com/)
 
